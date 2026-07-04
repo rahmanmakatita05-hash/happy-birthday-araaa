@@ -1,2 +1,2 @@
-# happy-birthday-araaa
-happy birthday website for araaa 💖
+# araaa-andd-araaa
+website for araaa 💖
